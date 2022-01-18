@@ -1,1 +1,0 @@
-# inha18minsuekkim.github.io
